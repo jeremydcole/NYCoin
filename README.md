@@ -1,0 +1,2 @@
+# NYCoin
+RRZEz1z8mMHTCeC43hB1mzZJ3JnuMqBycm
